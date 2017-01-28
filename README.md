@@ -1,37 +1,28 @@
-## Welcome to GitHub Pages
+<a href="http://www.davidmiller.us/"><b>David J. Miller</b></a> <b>is a multiple genre <a href="http://www.davidmiller.us/PromoPack"><b>Harmonicist, Vocalist, Guitarist,</b></a> <a href="http://www.davidmiller.us/Lessons">Teacher,</a> <a href="http://www.davidmiller.us/Promotions">Promoter</a><a>,</a> Owner, and <a href="http://www.davidmiller.us/JazzUnlimitedOfGreaterMilwaukee">President of Jazz Unlimited of Greater Milwaukee</a>. <a href="http://www.davidmiller.us/PromoPack">Dave Miller Band</a> provides a vast repertoire from Chuck Berry to Wilson Pickett, and is sure to please any audience with expertise and professional musicianship. <a href="http://www.davidmiller.us/PromoPack">David Miller</a> loves pouring out heart and soul into every performance and can fulfill any venue and genre. The <a href="http://www.davidmiller.us/PromoPack">Dave Miller Band</a> provides a high energy eclectic repertoire from Rock to Blues. The <a href="http://www.davidmiller.us/PromoPack">Dave Miller Band</a> provides a high energy eclectic repertoire from Rock to <a href="http://www.davidmiller.us/uploads/9/9/9/1/9991106/new_orleans.mp3">Jazz</a> &amp; <a href="http://t.umblr.com/redirect?z=https%3A%2F%2Fsoundcloud.com%2Fdavemillerband%2Fdaves-boogie&amp;t=MGQ3YzE4OGVjMjY5ZDU3OGFhOTBjZmY4Y2YwNjU0NzE2MDNkYWE5OCxXek9sOVpNMg%3D%3D&amp;b=t%3A_eDLfohJfljan21rGj84FQ&amp;m=0">Blues</a>. The members of the band are as follows: <a href="http://www.davidmiller.us/PromoPack">David J. Miller</a> (harmonicist, vocalist, and guitarist), <a href="http://t.umblr.com/redirect?z=https%3A%2F%2Fwww.facebook.com%2Fwilliam.l.martin.37&amp;t=OTJhMDljYzdlYmY4YmY5MGZlZTljN2MxYzViZDlhOTJkOWM3MjQzYixXek9sOVpNMg%3D%3D&amp;b=t%3A_eDLfohJfljan21rGj84FQ&amp;m=0">Bill Martin</a> (lead guitarist), <a href="https://www.facebook.com/hal.miller.125" target="_blank">Hal Miller</a> (bassist), and Andrew Wilson (drummer). The <a href="http://www.davidmiller.us/PromoPack">Dave Miller Band</a> is all professional and highly experienced musicians, eager to satisfy the fans all the way to the venue owners. <a href="http://www.davidmiller.us/Promotions">David Miller Live Music</a> also Promotes Local and National Acts! <br><br>
+For inquiries; Email: <a href="http://t.umblr.com/redirect?z=mailto%3Adavid%40davidmiller.us&amp;t=NzU1M2Y2OWUwOTExOGE4NzY5M2FjYzk5MjJhMTE5NTJiZjgyYjUwOSxXek9sOVpNMg%3D%3D&amp;b=t%3A_eDLfohJfljan21rGj84FQ&amp;m=0">David@DavidMiller.us,</a> <a href="http://t.umblr.com/redirect?z=denied%3Acallto%3A%2B14143759895&amp;t=N2JlNDY1YWI5MzUwMTQ0MzMxODk1MzhlYjhmNTY4MTQ0ZGEyZjY2YixXek9sOVpNMg%3D%3D&amp;b=t%3A_eDLfohJfljan21rGj84FQ&amp;m=0">Call: (414) 375-9895</a> <a href="http://t.umblr.com/redirect?z=denied%3Atel%3A%2B14143759895&amp;t=YWUzODIzZDU5ZDI0MTkzYzQ0MmM1YzBmMjFjMmFhYTllNzQzYTdhOSxXek9sOVpNMg%3D%3D&amp;b=t%3A_eDLfohJfljan21rGj84FQ&amp;m=0">(Cell Protocol: (414) 375-9895)</a>, or Web: <a href="http://www.davidmiller.us/">http://www.DavidMiller.us</a>! <a href="http://www.davidmiller.us/Donate">Donate!</a> Conference:<a href="http://t.umblr.com/redirect?z=https%3A%2F%2Fwww.Uberconference.com%2FDavidJMiller&amp;t=MWMyODYyZTk0NTdiMGYyZTM3MGY4NGY3NzU2MTkyNWYxMGE1MzE1MixXek9sOVpNMg%3D%3D&amp;b=t%3A_eDLfohJfljan21rGj84FQ&amp;m=0">www.Uberconference.com/DavidJMiller</a>, Call: <a href="http://t.umblr.com/redirect?z=denied%3Acallto%3A%2B18572164789&amp;t=ODdkM2U2MTQyODM1OWZhNDlmZTA0M2ViNzU0Y2RkNTU0NjZlZjRlYSxXek9sOVpNMg%3D%3D&amp;b=t%3A_eDLfohJfljan21rGj84FQ&amp;m=0">(857) 216-4789</a>; PIN: 48197.
+</b></p><p><a href="http://static.tumblr.com/v0xy3hc/GIdoe865t/davidmillerlivemusicbusinesscard.pdf">David J. Miller Business Card</a></p><br>
+<!-- Go to www.addthis.com/dashboard to customize your tools --> <script type="text/javascript" src="//s7.addthis.com/js/300/addthis_widget.js#pubid=ra-4fa4e45f377cb723"></script>
+<iframe src="https://www.facebook.com/plugins/like.php?href=https%3A%2F%2Fwww.facebook.com%2FBluesAndJazzPromotions&amp;width=450&amp;layout=standard&amp;action=like&amp;size=small&amp;show_faces=false&amp;share=true&amp;height=35&amp;appId" width="450" height="35" style="border:none;overflow:hidden" scrolling="no" frameborder="0" allowtransparency="true"></iframe><iframe frameborder="0" height="35" scrolling="no" src="https://www.facebook.com/plugins/like.php?href=https%3A%2F%2Fwww.facebook.com%2FDaveMillerBand%2F&amp;width=450&amp;layout=standard&amp;action=like&amp;size=small&amp;show_faces=false&amp;share=true&amp;height=35&amp;appId" width="450" style="border: none; overflow: hidden;"></iframe> <iframe frameborder="0" height="35" scrolling="no" src="https://www.facebook.com/plugins/like.php?href=https%3A%2F%2Fwww.facebook.com%2FJazzUnlimitedMKE.org&amp;width=450&amp;layout=standard&amp;action=like&amp;size=small&amp;show_faces=false&amp;share=true&amp;height=35&amp;appId" width="450" style="border: none; overflow: hidden;"></iframe> <iframe frameborder="0" height="35" scrolling="no" src="https://www.facebook.com/plugins/like.php?href=https%3A%2F%2Fwww.facebook.com%2FWisconsinAnnualBluesHarmonicaFestival&amp;width=450&amp;layout=standard&amp;action=like&amp;size=small&amp;show_faces=false&amp;share=true&amp;height=35&amp;appId" width="450" style="border: none; overflow: hidden;"></iframe> <iframe frameborder="0" height="35" scrolling="no" src="https://www.facebook.com/plugins/follow.php?href=https%3A%2F%2Fwww.facebook.com%2FDavidMiller.us&amp;width=450&amp;height=35&amp;layout=standard&amp;size=small&amp;show_faces=false&amp;appId" width="450" style="border: none; overflow: hidden;"></iframe>
 
-You can use the [editor on GitHub](https://github.com/DavidJMiller61/dm/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
+ <!--Start of Tawk.to Script--><script type="text/javascript">// <![CDATA[
+var Tawk_API=Tawk_API||{}, Tawk_LoadStart=new Date();
+(function(){
+var s1=document.createElement("script"),s0=document.getElementsByTagName("script")[0];
+s1.async=true;
+s1.src='https://embed.tawk.to/56698bd80c2fc456799e54eb/default';
+s1.charset='UTF-8';
+s1.setAttribute('crossorigin','*');
+s0.parentNode.insertBefore(s1,s0);
+})();
+// ]]></script><!--End of Tawk.to Script--></p>
+<script>
+  (function(i,s,o,g,r,a,m){i['GoogleAnalyticsObject']=r;i[r]=i[r]||function(){
+  (i[r].q=i[r].q||[]).push(arguments)},i[r].l=1*new Date();a=s.createElement(o),
+  m=s.getElementsByTagName(o)[0];a.async=1;a.src=g;m.parentNode.insertBefore(a,m)
+  })(window,document,'script','https://www.google-analytics.com/analytics.js','ga');
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+  ga('create', 'UA-60092324-1', 'auto');
+  ga('send', 'pageview');</script><?php include_once("analyticstracking.php") ?><h1><by david miller live music></by></h1>
 
-### Markdown
+<meta name="msvalidate.01" content="2D4DCB9C68E255AE5BBAD99A84B080D9"><meta name="description" content="David J. Miller is a multiple genre Harmonicist, Vocalist, Guitarist, Teacher, Owner, Promoter, and Jazz Unlimited of Greater Milwaukee President."></p>
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
-
-```markdown
-Syntax highlighted code block
-
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/DavidJMiller61/dm/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://help.github.com/categories/github-pages-basics/) or [contact support](https://github.com/contact) and we’ll help you sort it out.

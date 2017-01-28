@@ -22,7 +22,7 @@ s0.parentNode.insertBefore(s1,s0);
   })(window,document,'script','https://www.google-analytics.com/analytics.js','ga');
 
   ga('create', 'UA-60092324-1', 'auto');
-  ga('send', 'pageview');</script><?php include_once("analyticstracking.php") ?><h1><by david miller live music></by></h1>
+  ga('send', 'pageview');</script><h1><by david miller live music></by></h1>
 
 <meta name="msvalidate.01" content="2D4DCB9C68E255AE5BBAD99A84B080D9"><meta name="description" content="David J. Miller is a multiple genre Harmonicist, Vocalist, Guitarist, Teacher, Owner, Promoter, and Jazz Unlimited of Greater Milwaukee President."></p>
 
